@@ -1,1 +1,1 @@
-# homeworkandschoolstudy2.0
+# homeworkandschoolstudy
